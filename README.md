@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @lzkids
-- 👀 I’m interested in playing games(Dead by Daylight,Counter-Strike: Global Offensive,Borderlands 2...),reading Detective fiction and оцепенение。
+- 👋 Hi, I’m @lzkids.Look at me on the left
+- 👀 I’m interested in playing games(Dead by Daylight,Counter-Strike: Global Offensive,Borderlands 2...),reading Detective fiction and оцепенение.
 - 🌱 I’m currently learning Russian
 - 📫 How to reach me ...
 
